@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil : student
+### Boas vindas ao meu perfil : 
 
 Meu nome é Elloá Zaupa 
 
